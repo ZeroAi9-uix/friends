@@ -1,1 +1,1 @@
-# friends
+#say no to friends
